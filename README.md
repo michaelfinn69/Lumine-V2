@@ -7,5 +7,3 @@ Lumine V2 Status; ```Delayed due to Personal Issues```
 ### Game Predictions;
 - Town
 - BRM5
-- Blackout (When it releases)
-- More Comming,
